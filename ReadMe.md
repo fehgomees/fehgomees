@@ -10,6 +10,12 @@ Estamos comprometidos com o aprendizado contínuo, e ansiosos para enfrentar nov
 
 Se você está procurando alguém dedicado, apaixonado e pronto para contribuir em sua equipe, adoraria conversar e explorar como posso agregar valor à sua organização.
 
+   ## 📫 Contato
+
+📧 fernandasousagomes52@gmail.com
+📧 fernanda.gomes.fg2610@gmail.com
+
+   
    ## 🌐 Redes Sociais:
 
 [![Discord](https://img.shields.io/badge/Discord-000?style=for-the-&logo=discord)](https://https://discord.com/channels/@fernandagomes./) ✿ [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/fernanda-gomes-253377232/) ✿ [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/profile.php?id=1758116175&mibextid=2JQ9oc) ✿ [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/feh_gomes26/) ✿ [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@https://www.tiktok.com/@feh_gomes_) 
